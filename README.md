@@ -2,4 +2,4 @@
 
 aka Filosofie-Ethiek-RZL
 
-Stageverslag, misschien samenvatting
+Stageverslag, artikel (Haroen Viaene) en samenvatting (Matthias Demaret)
